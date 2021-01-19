@@ -1,0 +1,1 @@
+# Pokecenter_shiny
